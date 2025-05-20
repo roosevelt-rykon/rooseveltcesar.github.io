@@ -1,7 +1,7 @@
 # Roosevelt Cesar de Melo e Silva  
 **Chief Commercial Officer (CCO) | Rykon Tech e Consultoria**  
-📍 São Paulo – SP | 📧 roosevelt@rykon.com.br  
-🌐 [www.rykon.com.br](https://www.rykon.com.br) | 🔗 [LinkedIn](https://linkedin.com/in/rooseveltcesar)
+📍 São Paulo – SP | 📧 r.cesar@rykon.com.br  
+🌐 [www.rykon.com.br](https://www.rykon.com.br) | 🔗 [LinkedIn](https://linkedin.com/in/roosevelt-cco)
 
 ---
 
